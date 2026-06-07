@@ -165,6 +165,6 @@ Environmental Health • Climate Change • Cancer Survivorship • Heatwaves �
 
 **Ashima Singh, MPH**
 
-📧 ashsingh2202@gmail.com
+📧 [ashsingh2202@gmail.com](mailto:ashsingh2202@gmail.com)
 
-🔗 http://linkedin.com/in/ashimasingh-mph/
+💼 [LinkedIn](https://www.linkedin.com/in/ashimasingh-mph/)
